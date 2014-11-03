@@ -1,5 +1,5 @@
   Alt maset om at DGP må få seg en app har gitt avkastning. Så vi presenterer herved Den Gule App(e). Enjoy responsibly!
-Det Gule Parti
+#Det Gule Parti
 we piss on you all!
 (we even make your mail yellow)
 (but not your snow... that would be evil!)
